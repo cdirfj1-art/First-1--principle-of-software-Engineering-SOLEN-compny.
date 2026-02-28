@@ -1,0 +1,2 @@
+# First-1--principle-of-software-Engineering-SOLEN-compny.
+The technological era of mankind marked a significant milestone in human innovation. With the aid of technology, our progression as a society has seen astronomical growth in the last few decades. From a business perspective, the ability to adapt to the ever-changing market is crucial to the success of a company or organization. Historically, 
